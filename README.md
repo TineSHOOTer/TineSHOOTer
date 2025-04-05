@@ -1,4 +1,4 @@
-## Hi 👋 I'm Manish Prajapti
+## Hi 👋 I'm Manish Prajapati
 
 
 
